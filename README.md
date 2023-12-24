@@ -1,3 +1,3 @@
 # myCodes
 
-Thhe idea is to shhare any type of code created bby ,e.
+Thhe idea is to share any type of code created by Me.
